@@ -1,0 +1,1 @@
+Bem-vindo ao meu portfólio! Sou Paulo Allan, um desenvolvedor em aprendizado e apaixonado por tecnologia. Este portfólio é uma coleção dos meus trabalhos mais recentes e representativos, demonstrando minha experiência e habilidades.
